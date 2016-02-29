@@ -1,0 +1,28 @@
+### The Imperial Harem Part 2
+- delves into how the shifting perceptions of ottoman sultan and the freedom of expression of valide sultan and heseki
+- show that women had more power
+- how does the women in the harem affect and interact with the other aspects of the empire and the broader world.
+- **sovereignty** - how the state makes its monopoly on legal force known; ultimate arbiter of power
+- weber definition the structure that has the monopoly over the use of violence and justice
+- ultimate locus of where power lies; in monarchies, it is the king or queen
+- power in the imperial dynasty is never exactly where power seems to be
+- how does the perception of ottoman sovereignty change?
+	- there seems to be an idea that there was a decline in ottoman history after suleyman
+	- there is not a normal state of the ottoman empire
+	- there is a tendency to locate the classical age in the reign of suleyman
+	- there is a movement away from turko-mongal routes to the more early modern centralization of the sultan
+	- pierce looks at the way the valide sultan and heski used their power
+	- want to know historical issues of rising and falling
+- she tries to focus on how this was a different form of the execerhtion of power and the seclusion of the sultan
+- role of legitimation in state power and deciding the role of the women
+- the fact that they held these territories the almost mimicked traditional male roles
+- women who built public buildings shows that they had power and a superior role
+- the heski's interest is more likely to be more invested in her sons instead of the sultans
+- every point of contact between the harem and the outside world is essential to happenings in the harem
+- issue of agency - ability to act for oneself
+- in which cases did women cause historical change
+- imperial women actually changed the dynastic system
+- hurrem actively cultivated sulyiman and manipulated it for power to change the nature of the relationship between the sultan and the concubines
+- the ways in which transform the dynastic system
+- power within the system and nobody is completely powerless
+- 
