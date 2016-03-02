@@ -1,0 +1,39 @@
+### notes: Mustafa Ali
+- he was extremely descriptive with accusations and the details of their wrongs
+- he was famous as a poet before he was famous as a historian
+- there doesn't seem to be a standard form for advice books for sultans
+ 	- one of the first types of this book/ history
+	- may have used poetry for communication more than common day
+- dedication to the bureaucracy
+- who is the real audience?
+ 	- grand vezirs and field marshalls
+	- expose of all of the necessary information
+- to what extent is Mustafa ali representative of the ottoman elite?
+- sketch the vision of right order
+	- who is hurt by this and who gains?
+	- his vision has real political and social stakes for given groups
+- provision of justice to ordinary people
+- bureaucracy acts as the way to bring justice to the people
+	- he is constantly putting ordinary people down
+	- also trying to emphasize the provision of justice to ordinary people
+	- as long as each individual can do their part and uphold the ideals than its ok
+	-	the functioning of the chain depends on
+		- he talks about how the field marshall had a lot of trust in his underling and the betrayal of the trust led to the catastrophe; there needs to be a mutual trust that is founded in something legitimate
+		- emphasize discipline for the higher ranks
+	- explicit about saying sultan is going to hell if he does not supervise his vezirs
+	- sultan can not claim ignorance about what his vezirs are doing
+	- the sultans role
+	- mustafa ali is not totally amiss in wondering what role and how much the sultan knows what the vezirs are doing
+	- ali is making connection between center and connection of the bureaucracy
+	- Pierce just goes over big changes at the center
+	- bureaucracy should be benefiting the people importance of philanthropic work in the royal family and the dynasty
+		- talks about the corruption side
+		- a dispute within a group of people who share a number of assumption about right order
+		- pushing for price control and wants to eliminate the market failure and stuff that is going on
+		against the usery
+	- regulated market versus fair price
+	- no notion of mercantalism
+	- purpose of empire is to be inclusive
+	- people who have come out of it and trying integrate themselves into the political system
+	- how to interpret historical change?
+	
